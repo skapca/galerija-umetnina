@@ -1,0 +1,11 @@
+# Pablo Picasso
+- Guernica ("Gernika")
+- Les Demoiselles d'Avignon ("Devojke iz Avinjona")
+- The Weeping Woman ("Plačuća žena")
+- The Old Guitarist ("Stari gitarista")
+- The Blue Room ("Plava soba")
+- The Women of Algiers ("Žene iz Alžira")
+- Les Saltimbanques ("Akrobate")
+- Les Noces de Pierrette ("Venčanje Pjeret")
+- La Vie ("Život")
+- Girl Before a Mirror ("Devojka pred ogledalom")

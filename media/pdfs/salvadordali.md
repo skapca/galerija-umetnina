@@ -1,0 +1,11 @@
+# Salvador Dali
+- The Persistence of Memory ("Perzistencija pamćenja")
+- The Elephants ("Slonovi")
+- The Temptation of St. Anthony ("Iskušenje sv. Antuna")
+- The Disintegration of the Persistence of Memory ("Raspada se perzistencija pamćenja")
+- Christ of Saint John of the Cross ("Hristos Svetog Jovana Krstitelja")
+- The Great Masturbator ("Veliki samozadovoljivač")
+- The Sacrament of the Last Supper ("Sakrament poslednje večere")
+- The Swallow's Tail ("Lastin rep")
+- The Face of War ("Lice rata")
+- The Hallucinogenic Toreador ("Halucinogeni toreador")
